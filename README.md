@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Jaiprakash0545@gmail.com**
 
-- ⚡ Fun fact **If project is hard I do my best otherwise i use Chatgpt**
+- ⚡ Fun fact **If project is hard I do my best otherwise i use technology **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
